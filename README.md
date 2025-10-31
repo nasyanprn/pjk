@@ -1,1 +1,3 @@
-https://github.com/nasyanprn/pjk/issues/1#issue-3573267731
+## Video Tugas AKHIR PJK B 1
+
+Link video: https://youtu.be/i9twL-iAENE
